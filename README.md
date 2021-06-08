@@ -2,4 +2,4 @@
 
 Facebook
 
-Social networking service company
+Facebook, Inc. operates as a social networking company worldwide. 
