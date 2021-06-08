@@ -13,6 +13,8 @@ Reommendation either to "STAY LONG OR SHORT"
 
 Signal to SELL or STAY LONG was issued on 06/08/2021
 
+The market is BULLISH for the moment.
+
 
 
 !!!!!!! BEST OF LUCK !!!!!!!
