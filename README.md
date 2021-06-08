@@ -20,4 +20,4 @@ After hours: 07:36PM EDT
 
 
 
-Today's rcommendation today is to STAY LONG.
+!!!!!!!!!!!!!!!!!!!Today's rcommendation today is to STAY LONG!!!!!!!!!!!!!!!!!!
