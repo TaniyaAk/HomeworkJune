@@ -18,11 +18,19 @@ The market is BULLISH for the moment.
 Currently, the bulls are stronger....
 
 And more money is flowing into the market.....
+
+
 .
+
 .
+
 .
+
 .
+
 .
+
+
 .
 
 
