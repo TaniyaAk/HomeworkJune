@@ -17,3 +17,7 @@ At close: 4:00PM EDT
 126.70 -0.04 (-0.03%)
 
 After hours: 07:36PM EDT
+
+
+
+Today's rcommendation today is to STAY LONG.
