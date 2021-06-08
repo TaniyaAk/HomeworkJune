@@ -15,6 +15,8 @@ Signal to SELL or STAY LONG was issued on 06/08/2021
 
 The market is BULLISH for the moment.
 
+Currently, the bulls are stronger....
+
 
 
 !!!!!!! BEST OF LUCK !!!!!!!
